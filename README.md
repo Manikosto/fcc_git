@@ -1,2 +1,1 @@
-БУЙЙЯЯЯЯ
-dfghjkl;cvbnm,.ghjkl
+ЛОЛААА
